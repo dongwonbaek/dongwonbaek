@@ -4,4 +4,3 @@
 
 **열심히 해볼려구요.** 🔥🔥
 
-<img src="README.assets/KakaoTalk_20220708_231414837_01.jpg" alt="KakaoTalk_20220708_231414837_01" style="zoom: 33%;" />
